@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Satani1
+- 👀 I’m interested in web,game dev and neural artificial
+- 🌱 I’m currently learning 
